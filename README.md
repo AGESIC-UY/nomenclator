@@ -1,5 +1,4 @@
-# Nomenclator ( Repositorio Sin mantenimiento )        
-       
+# Nomenclator [DISCONTINUADO]       
        
        
        
