@@ -1,4 +1,4 @@
-# Nomenclator [DISCONTINUADO]       
+# Nomenclator [DESCONTINUADO]       
        
        
        
